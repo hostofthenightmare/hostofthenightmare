@@ -11,11 +11,12 @@
 <img width="500" height="550" alt="Untitled700_20260526025950" src="https://github.com/user-attachments/assets/d175fe41-e998-4a99-a4e6-71b792a4c96e" />
 </p>
 
- ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀      𓎟𓎟 ‎ ‎ ‎  ‎  ‎ ‎  ‎          ͟♥︎ ‎   
+　 　　  　　 　　  　　　 　　　 [ata](https://riddledbatz.atabook.org/)　 　　  　[main](https://github.com/riddledbatz)　 　　  　[prns](https://pronouns.cc/@riddledbatz_)
                         
-<p align="center">
-<img width="99" height="56" alt="tumblr_650febe7a3c68578b85427aee08a8fa2_11de603b_100" src="https://github.com/user-attachments/assets/8cbc0536-0822-4e24-b05f-6100662793c9" /><img width="99" height="56" alt="tumblr_bada4df324e0d5f0bfefc89ff2633bdf_8e26dbf5_100" src="https://github.com/user-attachments/assets/aa5a9498-3117-44de-94b5-61675f56faa7" /><img width="99" height="56" alt="tumblr_da858d2cf9fcc3de782c6c6be6df3fdc_fd671c21_100" src="https://github.com/user-attachments/assets/b142496c-ee49-437b-ba8c-83e752b8c263" />
-</p>
+
+
+　　 　　  　　　 　　　　 　　  　<img width="99" height="56" alt="tumblr_650febe7a3c68578b85427aee08a8fa2_11de603b_100" src="https://github.com/user-attachments/assets/8cbc0536-0822-4e24-b05f-6100662793c9" /><img width="99" height="56" alt="tumblr_bada4df324e0d5f0bfefc89ff2633bdf_8e26dbf5_100" src="https://github.com/user-attachments/assets/aa5a9498-3117-44de-94b5-61675f56faa7" /><img width="99" height="56" alt="tumblr_da858d2cf9fcc3de782c6c6be6df3fdc_fd671c21_100" src="https://github.com/user-attachments/assets/b142496c-ee49-437b-ba8c-83e752b8c263" />
+
 
 ⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀　𓊆 ྀིྀ ̣̣ 𓏵   ͜ ◞ 【 𝒾wec 𓏲𝄢  𝓅lural 】 𓏸་། ⁺ ̫¦
                                                       
