@@ -15,7 +15,7 @@
                         
 
 
-　　 　　  　　　 　　　　 <img width="99" height="56" alt="tumblr_650febe7a3c68578b85427aee08a8fa2_11de603b_100" src="https://github.com/user-attachments/assets/8cbc0536-0822-4e24-b05f-6100662793c9" />   𓏻   <img width="99" height="56" alt="tumblr_bada4df324e0d5f0bfefc89ff2633bdf_8e26dbf5_100" src="https://github.com/user-attachments/assets/aa5a9498-3117-44de-94b5-61675f56faa7" />   𓏻   <img width="99" height="56" alt="tumblr_da858d2cf9fcc3de782c6c6be6df3fdc_fd671c21_100" src="https://github.com/user-attachments/assets/b142496c-ee49-437b-ba8c-83e752b8c263" />
+　　 　　  　　　 　　　　 ⠀⠀⠀⠀⠀⠀ <img width="99" height="56" alt="tumblr_650febe7a3c68578b85427aee08a8fa2_11de603b_100" src="https://github.com/user-attachments/assets/8cbc0536-0822-4e24-b05f-6100662793c9" />   𓏻   <img width="99" height="56" alt="tumblr_bada4df324e0d5f0bfefc89ff2633bdf_8e26dbf5_100" src="https://github.com/user-attachments/assets/aa5a9498-3117-44de-94b5-61675f56faa7" />   𓏻   <img width="99" height="56" alt="tumblr_da858d2cf9fcc3de782c6c6be6df3fdc_fd671c21_100" src="https://github.com/user-attachments/assets/b142496c-ee49-437b-ba8c-83e752b8c263" />
 
 
 ⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ͜ ◞ 　 　　　【　 　　　 𝒾wec 　 　　　𓏲𝄢 　 　　　 𝓅lural 】 𓏸་།　 　　　 ⁺
