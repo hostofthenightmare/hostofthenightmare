@@ -11,8 +11,7 @@
 <img width="500" height="550" alt="Untitled700_20260526025950" src="https://github.com/user-attachments/assets/d175fe41-e998-4a99-a4e6-71b792a4c96e" />
 </p>
 
-<img width="1280" height="136" alt="tumblr_20f125a07f5fa894b6c6b4187e6ba990_b4eb36be_1280" src="https://github.com/user-attachments/assets/e3410df9-91cc-4792-b281-b60261bf49e7" />
-
+ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀      𓎟𓎟 ‎ ‎ ‎  ‎  ‎ ‎  ‎          ͟♥︎ ‎   
                         
 <p align="center">
 <img width="99" height="56" alt="tumblr_650febe7a3c68578b85427aee08a8fa2_11de603b_100" src="https://github.com/user-attachments/assets/8cbc0536-0822-4e24-b05f-6100662793c9" /><img width="99" height="56" alt="tumblr_bada4df324e0d5f0bfefc89ff2633bdf_8e26dbf5_100" src="https://github.com/user-attachments/assets/aa5a9498-3117-44de-94b5-61675f56faa7" /><img width="99" height="56" alt="tumblr_da858d2cf9fcc3de782c6c6be6df3fdc_fd671c21_100" src="https://github.com/user-attachments/assets/b142496c-ee49-437b-ba8c-83e752b8c263" />
