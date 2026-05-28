@@ -11,7 +11,7 @@
 <img width="500" height="550" alt="Untitled700_20260526025950" src="https://github.com/user-attachments/assets/d175fe41-e998-4a99-a4e6-71b792a4c96e" />
 </p>
 
-　 　　  　　   　　  [rentry](https://rentry.co/hostofthenightmares)　 　　 𓏻   　[ata](https://riddledbatz.atabook.org/)　 　 𓏻 　  　[main](https://github.com/riddledbatz)　 　　 𓏻   　[prns](https://pronouns.cc/@riddledbatz_)
+　 　　  　　   　　  [rentry](https://rentry.co/hostofthenightmare)　 　　 𓏻   　[ata](https://riddledbatz.atabook.org/)　 　 𓏻 　  　[main](https://github.com/riddledbatz)　 　　 𓏻   　[prns](https://pronouns.cc/@riddledbatz_)
                         
 
 
